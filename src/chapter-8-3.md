@@ -1,5 +1,4 @@
-Chapter 8: Measuring and Evaluating Stress Reduction Success: Continuous Improvement in Workplace Stress Reduction
-==================================================================================================================
+# Continuous Improvement in Workplace Stress Reduction
 
 Measuring and evaluating stress reduction success is critical for continuous improvement in workplace stress reduction. In this chapter, we will explore the importance of measuring and evaluating stress reduction success, and techniques for doing so.
 

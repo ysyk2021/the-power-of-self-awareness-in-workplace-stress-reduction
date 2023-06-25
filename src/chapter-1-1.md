@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Defining Workplace Stress and Its Impact on Employees
-==============================================================================
+# Defining Workplace Stress and Its Impact on Employees
 
 Workplace stress is a common experience for many employees, and it can have negative effects on both personal and professional well-being. In this chapter, we will define workplace stress and explore its impact on employees.
 

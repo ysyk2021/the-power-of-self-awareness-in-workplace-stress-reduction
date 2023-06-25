@@ -1,5 +1,4 @@
-Chapter 3: The Science of Stress: The Role of Stress in Workplace Performance and Productivity
-==============================================================================================
+# The Role of Stress in Workplace Performance and Productivity
 
 Stress is a natural response to challenging or demanding situations, but excessive or chronic stress can have negative effects on workplace performance and productivity. In this chapter, we will explore the science of stress and its impact on workplace performance and productivity.
 

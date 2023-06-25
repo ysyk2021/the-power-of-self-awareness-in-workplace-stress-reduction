@@ -1,5 +1,4 @@
-Chapter 6: Building Resilience and Coping Skills: Developing Resilience as a Tool for Managing Stress
-=====================================================================================================
+# Developing Resilience as a Tool for Managing Stress
 
 Developing resilience is an essential component of managing workplace stress. In this chapter, we will explore the importance of resilience and techniques for developing resilience as a tool for managing stress.
 

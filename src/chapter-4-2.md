@@ -1,5 +1,4 @@
-Chapter 4: Identifying Personal Stress Triggers: Identifying Common Stress Triggers in the Workplace
-====================================================================================================
+# Identifying Common Stress Triggers in the Workplace
 
 Identifying personal stress triggers is a critical step in reducing workplace stress and improving overall well-being. In this chapter, we will explore common stress triggers in the workplace and provide practical advice for identifying them effectively.
 

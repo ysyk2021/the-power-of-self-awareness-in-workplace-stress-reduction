@@ -1,5 +1,4 @@
-Chapter 6: Building Resilience and Coping Skills: Techniques for Building Resilience and Coping Skills at Work
-==============================================================================================================
+# Techniques for Building Resilience and Coping Skills at Work
 
 Developing resilience and coping skills is an essential component of managing workplace stress. In this chapter, we will explore techniques for building resilience and coping skills specifically in the workplace setting.
 

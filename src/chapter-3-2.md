@@ -1,5 +1,4 @@
-Chapter 3: The Science of Stress: Different Types of Stress and Their Causes
-============================================================================
+# Different Types of Stress and Their Causes
 
 Stress is a common experience in the workplace, but not all stress is created equal. In this chapter, we will explore the different types of stress and their causes, helping employees to identify the sources of their stress and develop effective strategies for managing them.
 

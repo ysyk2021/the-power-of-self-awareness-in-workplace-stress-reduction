@@ -1,5 +1,4 @@
-Chapter 7: Communicating Effectively with Colleagues and Managers: Techniques for Effective Communication
-=========================================================================================================
+# Techniques for Effective Communication
 
 Effective communication is essential for managing workplace stress and improving overall well-being. In this chapter, we will explore techniques for communicating effectively with colleagues and managers.
 

@@ -1,5 +1,4 @@
-Chapter 5: Mindfulness-Based Approaches to Stress Reduction: The Benefits of Mindfulness-Based Stress Reduction
-===============================================================================================================
+# The Benefits of Mindfulness-Based Stress Reduction
 
 Mindfulness-based stress reduction (MBSR) is a popular approach to managing workplace stress that involves mindfulness practices such as meditation, deep breathing, and body scanning. In this chapter, we will explore the benefits of MBSR for managing workplace stress.
 

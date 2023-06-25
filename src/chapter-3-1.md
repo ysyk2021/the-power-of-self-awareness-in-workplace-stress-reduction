@@ -1,5 +1,4 @@
-Chapter 3: The Science of Stress: Overview of Stress and Its Impact on the Body and Mind
-========================================================================================
+# Overview of Stress and Its Impact on the Body and Mind
 
 Stress is a common experience in the workplace, but excessive or chronic stress can have negative effects on both the body and mind. In this chapter, we will explore the science of stress, its impact on the body and mind, and practical strategies for managing stress effectively.
 

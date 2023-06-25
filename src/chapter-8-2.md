@@ -1,5 +1,4 @@
-Chapter 8: Measuring and Evaluating Stress Reduction Success: Evaluating Individual and Team Performance
-========================================================================================================
+# Evaluating Individual and Team Performance
 
 Measuring and evaluating stress reduction success is critical for continuous improvement in workplace stress reduction. In this chapter, we will explore techniques for evaluating individual and team performance related to stress reduction.
 

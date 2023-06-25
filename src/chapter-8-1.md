@@ -1,5 +1,4 @@
-Chapter 8: Measuring and Evaluating Stress Reduction Success: Metrics for Measuring Workplace Stress Reduction
-==============================================================================================================
+# Metrics for Measuring Workplace Stress Reduction
 
 Measuring and evaluating stress reduction success is critical for continuous improvement in workplace stress reduction. In this chapter, we will explore metrics for measuring workplace stress reduction.
 
