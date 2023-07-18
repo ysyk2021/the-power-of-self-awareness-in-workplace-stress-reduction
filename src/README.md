@@ -8,5 +8,4 @@ Whether you're a manager, employee, or freelancer, "The Power of Self-Awareness"
 
 With real-world examples and practical advice, "The Power of Self-Awareness" is an essential resource for anyone looking to reduce workplace stress and achieve greater success and happiness in their career. So why wait? Start your journey towards a more fulfilling and rewarding work life today!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
