@@ -1,4 +1,4 @@
-Chapter 4: Techniques for Building Resilience and Coping Skills at Work
+Techniques for Building Resilience and Coping Skills at Work
 =======================================================================
 
 In this chapter, we will explore various techniques that can help individuals build resilience and develop coping skills to effectively navigate workplace stress. These strategies empower individuals to maintain their well-being and thrive in challenging work environments.

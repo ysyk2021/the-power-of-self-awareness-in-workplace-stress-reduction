@@ -1,4 +1,4 @@
-Chapter 9: Addressing Conflict and Difficult Situations in the Workplace
+Addressing Conflict and Difficult Situations in the Workplace
 ========================================================================
 
 In this chapter, we will explore strategies and techniques for effectively addressing conflict and difficult situations in the workplace. Conflict and challenging circumstances can contribute to stress and hinder productivity. By developing skills to navigate these situations, individuals can reduce stress levels and foster a more harmonious work environment.

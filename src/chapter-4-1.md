@@ -1,4 +1,4 @@
-Chapter 3: Understanding Personal Stress Responses
+Understanding Personal Stress Responses
 ==================================================
 
 In this chapter, we will explore the concept of personal stress responses and how self-awareness plays a vital role in understanding and managing workplace stress. By gaining insights into our individual stress reactions, we can develop effective strategies to reduce stress and enhance well-being.

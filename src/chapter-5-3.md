@@ -1,4 +1,4 @@
-Chapter 5: The Benefits of Mindfulness-Based Stress Reduction
+The Benefits of Mindfulness-Based Stress Reduction
 =============================================================
 
 In this chapter, we will explore the numerous benefits of practicing mindfulness-based stress reduction (MBSR) in the workplace. MBSR techniques have been widely recognized for their effectiveness in reducing stress, improving well-being, and enhancing overall performance.

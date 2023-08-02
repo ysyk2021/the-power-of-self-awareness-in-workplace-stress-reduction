@@ -1,4 +1,4 @@
-Chapter 6: Evaluating Individual and Team Performance
+Evaluating Individual and Team Performance
 =====================================================
 
 In this chapter, we will explore the importance of evaluating individual and team performance in the context of workplace stress reduction. By implementing effective performance evaluation strategies, organizations can create a supportive and productive work environment, reduce stress levels, and enhance overall job satisfaction.

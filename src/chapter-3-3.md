@@ -1,4 +1,4 @@
-Chapter 8: The Role of Stress in Workplace Performance and Productivity
+The Role of Stress in Workplace Performance and Productivity
 =======================================================================
 
 In this chapter, we will delve into the role that stress plays in workplace performance and productivity. Understanding how stress affects individuals' ability to perform their work effectively is crucial for developing strategies to reduce stress and enhance productivity.

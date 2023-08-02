@@ -1,4 +1,4 @@
-Chapter 2: Definition and Components of Self-Awareness
+Definition and Components of Self-Awareness
 ======================================================
 
 In this chapter, we will explore the concept of self-awareness and its essential components. Understanding self-awareness is vital for individuals seeking to reduce workplace stress and improve overall well-being through introspection and self-reflection.

@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Effective Communication
+Techniques for Effective Communication
 =================================================
 
 In this chapter, we will explore various techniques that individuals can employ to enhance their communication skills in the workplace. Effective communication is crucial for reducing stress, fostering collaboration, and promoting a positive work environment.

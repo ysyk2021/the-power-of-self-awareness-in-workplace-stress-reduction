@@ -1,4 +1,4 @@
-Chapter 7: Defining Workplace Stress and Its Impact on Employees
+Defining Workplace Stress and Its Impact on Employees
 ================================================================
 
 In this chapter, we will explore the concept of workplace stress, its definition, and its impact on employees. Understanding the causes and consequences of workplace stress is essential for individuals seeking to reduce stress levels and create a healthier work environment.

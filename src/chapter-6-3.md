@@ -1,4 +1,4 @@
-Chapter 5: The Role of Humor, Gratitude, and Positive Thinking in Stress Reduction
+The Role of Humor, Gratitude, and Positive Thinking in Stress Reduction
 ==================================================================================
 
 In this chapter, we will explore the powerful impact of humor, gratitude, and positive thinking on reducing workplace stress. By incorporating these elements into our lives, we can shift our mindset, enhance resilience, and cultivate a more positive work environment.

@@ -1,4 +1,4 @@
-Chapter 7: Techniques for Practicing Mindfulness in the Workplace
+Techniques for Practicing Mindfulness in the Workplace
 =================================================================
 
 In this chapter, we will explore various techniques that individuals can employ to practice mindfulness in the workplace. These techniques can help reduce stress, improve focus, and cultivate a sense of well-being amidst the demands and pressures of work.

@@ -1,4 +1,4 @@
-Chapter 3: Techniques for Developing Self-Awareness
+Techniques for Developing Self-Awareness
 ===================================================
 
 In this chapter, we will explore various techniques that can be employed to develop self-awareness in the workplace. These techniques will assist individuals in gaining a deeper understanding of themselves, their emotions, and their behaviors, ultimately leading to reduced workplace stress and improved overall well-being.

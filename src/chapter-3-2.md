@@ -1,4 +1,4 @@
-Chapter 9: Different Types of Stress and Their Causes
+Different Types of Stress and Their Causes
 =====================================================
 
 In this chapter, we will explore the different types of stress that individuals may experience in the workplace and discuss their various causes. Understanding the sources of stress can help individuals develop effective strategies for stress reduction and self-awareness.
