@@ -68,4 +68,4 @@ A supportive work environment plays a crucial role in building resilience. Emplo
 Conclusion
 ----------
 
-Developing resilience is a powerful tool for managing workplace stress. By prioritizing self-care, cultivating a growth mindset, building problem-solving skills, embracing change, and fostering a supportive work environment, individuals can strengthen their capacity to navigate stressors effectively and thrive in the face of adversity. Resilience acts as a protective shield, enabling individuals to maintain well-being and achieve success in their professional lives. In the final chapter, we will explore strategies for fostering a healthy work-life balance to prevent and manage workplace stress.
+Developing resilience is a powerful tool for managing workplace stress. By prioritizing self-care, cultivating a growth mindset, building problem-solving skills, embracing change, and fostering a supportive work environment, individuals can strengthen their capacity to navigate stressors effectively and thrive in the face of adversity. Resilience acts as a protective shield, enabling individuals to maintain well-being and achieve success in their professional lives.
