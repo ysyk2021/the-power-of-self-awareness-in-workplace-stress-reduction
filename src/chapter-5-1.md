@@ -1,4 +1,4 @@
-Chapter 1: Introduction to Mindfulness as a Tool for Stress Reduction
+Introduction to Mindfulness as a Tool for Stress Reduction
 =====================================================================
 
 In today's fast-paced and demanding work environments, stress has become an inevitable part of our lives. The pressure to meet deadlines, achieve targets, and maintain work-life balance can often leave us feeling overwhelmed and burned out. However, there is a powerful tool that can help us navigate through these challenges and find inner peace amidst the chaos - mindfulness.
