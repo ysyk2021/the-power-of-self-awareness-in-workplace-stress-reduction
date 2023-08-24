@@ -1,5 +1,3 @@
-Metrics for Measuring Workplace Stress Reduction
-===========================================================
 
 In this chapter, we will explore the importance of measuring workplace stress reduction and the key metrics that organizations can utilize to assess the effectiveness of their efforts. By implementing appropriate metrics, organizations can gain valuable insights into the impact of stress reduction initiatives and make informed decisions to promote a healthier work environment.
 

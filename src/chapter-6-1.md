@@ -1,5 +1,3 @@
-Developing Resilience as a Tool for Managing Stress
-==============================================================
 
 In this chapter, we will delve into the concept of resilience and its role in effectively managing workplace stress. By developing resilience, individuals can enhance their ability to navigate challenges, bounce back from setbacks, and maintain well-being in the face of adversity.
 

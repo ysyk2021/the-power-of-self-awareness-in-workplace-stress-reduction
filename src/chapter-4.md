@@ -1,5 +1,3 @@
-Chapter 4: Identifying Personal Stress Triggers
-===============================================
 
 Identifying personal stress triggers is a critical step in reducing workplace stress and improving overall well-being. In this chapter, we will explore how to understand personal stress responses, identify common stress triggers in the workplace, and develop strategies for managing personal stress triggers.
 
@@ -24,5 +22,4 @@ Conclusion
 Identifying personal stress triggers is critical for reducing workplace stress and improving overall well-being. By understanding personal stress responses, identifying common stress triggers in the workplace, and developing strategies for managing personal stress triggers, employees can create a healthier, happier, and more productive work environment.
 
 Remember to remain proactive, adaptable, and focused on your goals, and seek outside support and guidance when necessary. With the right mindset, strategies, and support, you can identify and manage personal stress triggers and create a healthier, happier, and more productive work environment.
-
 

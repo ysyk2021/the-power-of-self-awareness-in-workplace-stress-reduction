@@ -1,5 +1,3 @@
-Overview of Stress and Its Impact on the Body and Mind
-=================================================================
 
 In this chapter, we will provide an overview of stress, its causes, and its impact on the body and mind. Understanding how stress affects us physiologically and psychologically is crucial in developing effective strategies for stress reduction and overall well-being.
 

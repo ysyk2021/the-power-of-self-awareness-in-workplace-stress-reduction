@@ -1,5 +1,3 @@
-Chapter 7: Communicating Effectively with Colleagues and Managers
-=================================================================
 
 Effective communication is essential for managing workplace stress and improving overall well-being. In this chapter, we will explore the importance of communication in reducing workplace stress, techniques for communicating effectively with colleagues and managers, and strategies for addressing conflict and difficult situations in the workplace.
 

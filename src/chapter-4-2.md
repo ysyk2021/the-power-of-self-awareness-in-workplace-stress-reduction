@@ -1,5 +1,3 @@
-Identifying Common Stress Triggers in the Workplace
-==============================================================
 
 In this chapter, we will delve into the various common stress triggers that individuals often encounter in the workplace. By recognizing these triggers, individuals can develop a greater understanding of the sources of stress and proactively address them to reduce their impact on overall well-being and productivity.
 

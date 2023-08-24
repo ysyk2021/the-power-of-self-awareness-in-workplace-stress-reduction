@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Workplace stress is a common experience for many employees, and it can have negative effects on both personal and professional well-being. In this chapter, we will define workplace stress, explore its impact on employees, and discuss the importance of self-awareness in managing stress.
 

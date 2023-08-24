@@ -1,5 +1,3 @@
-Developing Strategies for Managing Personal Stress Triggers
-======================================================================
 
 In this chapter, we will explore the importance of identifying and managing personal stress triggers in the workplace. By developing effective strategies to address these triggers, individuals can proactively reduce stress levels and create a healthier work environment.
 

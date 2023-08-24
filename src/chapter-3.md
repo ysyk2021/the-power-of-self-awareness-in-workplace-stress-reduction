@@ -1,5 +1,3 @@
-Chapter 3: The Science of Stress
-================================
 
 Stress is a common experience in the workplace, but excessive or chronic stress can have negative effects on both the body and mind. In this chapter, we will explore the science of stress, including its impact on the body and mind, different types of stress and their causes, and the role of stress in workplace performance and productivity.
 
